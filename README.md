@@ -1,2 +1,2 @@
-# Peter-Ku-in
+# Peter-Kušin
 Peter Kušin
